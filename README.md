@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Adama Kpoghomou (@iamdamsolevrai)
+# 👋 Hi, I’m Niankoye Adama Kpoghomou (@iamdamsolevrai)
 
 🚀 I’m a co-founder of **Walking Legend**, a real estate technology platform aiming to revolutionize property rental and sales in Africa and beyond. My mission is to build secure, AI-powered, and community-focused digital infrastructure that empowers users and property owners alike.
 
